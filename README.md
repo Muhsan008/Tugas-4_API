@@ -2,4 +2,5 @@
 
 tes
 
-![20211225_213357](https://user-images.githubusercontent.com/94104064/147386741-08077baa-045f-4288-bccf-e0e060b44b09.gif)
+![20211225_213357](https://user-images.githubusercontent.com/94104064/147386786-647816e0-18f6-4480-843b-53f9214418e5.gif)
+
